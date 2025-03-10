@@ -1,2 +1,0 @@
-GitHub 101 VITMAS
-Hello VIT
